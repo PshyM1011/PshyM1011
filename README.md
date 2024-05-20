@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **shyniepeiris@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/shyniepeiris](www.linkedin.com/in/shyniepeiris)
+- 📄 Know about my experiences [www.linkedin.com/in/shyniepeiris](https://linkedin.com/in/shyniepeiris)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
